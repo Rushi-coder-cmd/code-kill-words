@@ -1,1 +1,1 @@
-play online-  https://kodemeister-yt.github.io/coder-kill-words/
+play online-  https://rushi-coder-cmd.github.io/code-kill-words/
